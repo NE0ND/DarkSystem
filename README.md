@@ -1,0 +1,2 @@
+# DarkSystem
+Kena DarkSystem Bang? 
